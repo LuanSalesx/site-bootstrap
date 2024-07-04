@@ -3,4 +3,4 @@
 # Link do site: https://luansalesx.github.io/site-bootstrap/
 
 
-aceito críticas👨‍💻
+aceito críticas👨‍💻, mas que não sejam tão pesadas !!!
